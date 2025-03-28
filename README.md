@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @propersequences (Eliana).
+- 😄 Pronouns: She/Her
+- 👀 I’m interested in blending music production with advanced sound design, exploring the emotional power of audio.
+- 🌱 I’m currently learning Blender to create audiovisual experiences.
+- 💞️ I’m looking to collaborate on music production, live performances, and conceptual audiovisual projects.
+- 📫 How to reach me: Reach out to me via social media or email.
